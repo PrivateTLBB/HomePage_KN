@@ -74,7 +74,7 @@ date  :21.01.2020
 
 🔟 TOP 1-10 tích luỹ sẽ nhận được Quà theo danh sách được bố cáo tại NPC (Phần thưởng sẽ được cập nhật sau)
 
-### 🌸🌸 Khuyến mãi nạp thẻ ngày 24 đến ngày hết ngày 27 (tức là 30 tết đến hết mồng 3 tết âm lịch) 20% đối với thẻ cào và 40% đối với ATM, Zalopay, paypal...
+### 🌸🌸 Khuyến mãi nạp thẻ ngày 24 đến ngày hết ngày 27 (tức là 30 tết đến hết mồng 3 tết âm lịch) 20% đối  với thẻ cào và 40% đối với ATM, Zalopay, paypal...
 
 
 👉 Lời cuối cùng: BQT Thiên Long Kỷ Niệm xin gửi lời cảm ơn chân thành đến các quý bằng hữu đã và đang chơi tại Thiên Long Kỷ Niệm. Năm mới chúc anh em một cái tết an lành, sức khoẻ và hơn nữa là thành công hơn năm cũ. Phía BQT Kỷ Niệm sẽ update rất nhiều thứ vào thời gian tới để các quý bằng hữu trải nghiệm game tốt nhất.
